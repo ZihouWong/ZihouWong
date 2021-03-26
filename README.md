@@ -15,4 +15,6 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-C'est la vie
+
+
+One day, I will have my own 🐶.
